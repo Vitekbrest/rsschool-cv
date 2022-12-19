@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Vitekbrest.github.io/rsschool-cv/cv
